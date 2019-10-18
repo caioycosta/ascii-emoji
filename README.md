@@ -59,6 +59,9 @@ running
 ヽ(´▽`)/
 happy face  
 
+ヽ(ಠ_ಠ)ノ 
+disapproval arms
+
 ヽ(´ー｀)ノ
 basking in glory  
 
@@ -142,6 +145,9 @@ trolling
 
 ヽ༼ ಠ益ಠ ༽ﾉ
 angry troll
+
+୧༼ ಠ益ಠ ༽୨
+closed fists troll
 
 t(-_-t)
 fuck it
